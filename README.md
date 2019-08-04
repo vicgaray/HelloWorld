@@ -1,3 +1,4 @@
+![headshot](IMG_0191.JPG)
 # Hi, Have You met Victor.
 Hey! I'm still new to this. Just on here to learn.
 
