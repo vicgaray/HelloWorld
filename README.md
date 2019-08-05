@@ -7,3 +7,6 @@ I'm currently in the military self teaching myself how to code. Hope to get out 
 
 # My hobbies
 I don't really have many hobbies. I like to travel with good company. I play Apex, hit me up if you're trying to squad up.
+
+# Favorite Books
+I some of my favorite books are Python Crash Course and Endgame.
